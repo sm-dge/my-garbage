@@ -1,3 +1,3 @@
 my code is really cool
 
-if you copy it i will kill you 
+if you copy it i will cry
